@@ -1,0 +1,2 @@
+- My name i Michael Hansen and I work on many different home projects, like RC, Coding Pirates and smart home.
+- See my homepage www.rclab.dk for more info
